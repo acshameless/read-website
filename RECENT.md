@@ -1,1 +1,1 @@
-* [第 00 本 - example](https://weekly.shameless.top/posts/00-example) - 2024-11-23
+* [第 00 本 - example](https://read.shameless.top/posts/00-example) - 2024-11-23
